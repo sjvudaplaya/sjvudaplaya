@@ -1,0 +1,4 @@
+- i feel dead inside..
+- suicidal
+- :)
+- 
